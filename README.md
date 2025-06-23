@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @Adhithya-V
-- 👀 I’m interested in Core Electronics
-- 🌱 I’m currently learning VLSI
-- 💞️ I’m looking to collaborate on Core Internships
+- Aspiring to become an Entrepreneur
 - 📫 How to reach me adhithya2210558@ssn.edu.in 
 - 😄 Pronouns: He/Him
   
